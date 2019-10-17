@@ -1,10 +1,19 @@
-1、（精品软件）包括p站和x站↓↓↓↓↓ https://www.lanzous.com/b816081
+1，（精品软件）包括p站和x站↓↓↓↓↓ 
+https: //www.lanzous.com/b816081
 
-2、下面是国内软件，也就是国内乱七八糟的软件，不要vpn看心情更新↓↓↓↓↓ https://www.lanzous.com/b94744
+2，下面是国内软件，也就是国内乱七八糟的软件，不要vpn看心情更新↓↓↓↓↓
+ https: //www.lanzous.com/b94744
 
-3、下面是一些网站，和资源网站（安卓苹果通用） http://nfacg.xyz/（二次元cos全露的都有） https://nhentai.net/（看本子的） 少女映画（cos写真）https://pan.baidu.com/wap/init?surl=5sn5QiTcUDf3nZLRYF06Ig提取码：gn3v（共22g全部下好再解压）
+3，下面是一些网站，和资源网站（安卓苹果通用）
+http://nfacg.xyz/（二次元cos全露的都有） 
+https://nhentai.net/（看本子的）少女映画（cos写真）
+https://pan.baidu.com/wap/init?surl=5sn5QiTcUDf3nZLRYF06Ig提取码：gn3v（共22g全部下下好再解压）
+https://www.acguz.com/6468.html（次元宅）
+https://xxx.weishenmenameshuai.com/html/index.php（不错的网站，ios可以用用，除了不能搜索其他都好）
 
-4、下面更新信息和一些乱七八糟的玩意。 10.06更新是个软件和一个链接 1.少女映画百度网盘下载链接，写真的套图，件件精品，全漏各种cos，全部下载好再解压 2.xxlive：聚集了很多很多很多app的一个app，直播也有云播也有，里面部分功能需要vpn，建议全程vpn（推荐使用） 3.大象破解版：不需要vpn，播放速度很快，资源一般，可搜索（推荐使用） 4.蜜罐视频：界面粗糙，播放速度一般 5.jav101：播放速度非常快，唯一的缺点就是 如果没分享只能一天看10部 4款app可以根据自己的喜好来一一筛选
-
-重磅更新Setting：内容丰富番号云播都能搜 播放快 还能同步谷歌账号 app做的相当不错 老牌应用 需要vpn AVmovie：同上 旗鼓相当的app 个人比较推荐setting
-两款都在精品软件区 需要vpn vpn也在精品区 请低调使用
+4.10.17更新5款app:HACK91和富二代：两个都不错播放快91最近搜索坏了不能用，自己取舍吧
+字幕君:看番号用的，喜欢看长视频剧情可以去速度质量都不错
+蝌蚪窝:不用解释了吧，速度搜索质量都有，较推荐
+包浆：好东西，视频图片小说云播都有很好用，相当不错，推荐！
+今天五款都不需要vpn！！！！
+要vpn的去精品区 里面有！！！！
